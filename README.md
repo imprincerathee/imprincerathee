@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...myself
 - 💞️ I’m looking to collaborate on ...github and music
 - 📫 How to reach me ...
-- ig:- https://instagram.com/imprincerathee?igshid=MzMyNGUyNmU2YQ==" imprincerathee
+- ig:- https://www.instagram.com/princerathee129/" imprincerathee
 - mail:- ratheegaming69@gmail.com
 - 
 
